@@ -1,0 +1,2 @@
+# richx
+privacy policy
