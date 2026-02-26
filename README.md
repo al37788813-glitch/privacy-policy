@@ -1,4 +1,4 @@
-# richx
+# Privacy Policy richx
 privacy policy
 Privacy Policy for RichX
 
