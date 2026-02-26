@@ -1,4 +1,4 @@
-# Privacy Policy richx
+# Privacy Policy for app RichX 
 privacy policy
 Privacy Policy for RichX
 
