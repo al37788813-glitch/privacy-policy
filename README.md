@@ -1,5 +1,5 @@
 # Privacy Policy for app RichX 
-privacy policy
+
 Privacy Policy for RichX
 
 Effective Date: February 25, 2026
